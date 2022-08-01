@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Loló, a Lead 3D Artist.
+- 👩‍💻👾 I do 3D Art for videogames.
+- 👀 I’m interested in learning all sorts of random stuff, specially about 3D, technology, science, and finances. 
+- 📫 How to reach me: lolo@greebley.com
